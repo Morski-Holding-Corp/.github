@@ -1,1 +1,1 @@
-# Weclome in the MORSKI HOLDING CORP
+# Welcome in the MORSKI HOLDING CORP
